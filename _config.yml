@@ -1,0 +1,17 @@
+title: Is this necessary?
+email: is.this.necessary.blog@gmail.com
+author: Marek G
+description: >-
+  Geez, is this description necessary?
+baseurl: "" # the subpath of your site, e.g. /blog
+url: "" # the base hostname & protocol for your site, e.g. http://example.com
+
+# Build settings
+markdown: kramdown
+theme: minima
+# theme: jekyll-theme-primer
+
+plugins:
+  - jekyll-feed
+
+show_excerpts: true
