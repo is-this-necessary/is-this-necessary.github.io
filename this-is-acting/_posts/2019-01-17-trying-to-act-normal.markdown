@@ -2,7 +2,7 @@
 layout: post
 title:  "Trying to Act normal"
 date:   2019-01-17 01:00:00 +0100
-categories: this-is-acting
+tags: casting stars szpital
 ---
 I'm not proud of yesterday's performance. I was wanting it too much, I was too confident and too orthodox. That audition might not turn out successful.
 
