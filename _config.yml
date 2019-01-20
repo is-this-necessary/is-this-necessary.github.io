@@ -20,3 +20,9 @@ permalink: pretty
 
 header_pages:
   - about.md
+
+exclude:
+  - Gemfile
+  - Gemfile.lock
+  - README.md
+  - bin
