@@ -1,7 +1,8 @@
 ---
-layout: post
+layout: tagged-post
 title:  "Casting"
 date:   2019-01-10 21:21:16 +0100
+category: this-is-acting
 tags: casting stars
 ---
 I went to a casting today. It could be called my first one, although I've been in similar situations a few times already. The idea of auditioning was more or less the same as before, but the circumstances were different.
