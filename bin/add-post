@@ -3,4 +3,9 @@
 bin/add-category $2
 mkdir -p $2/_posts
 date=`date +'%Y-%m-%d'`
+
+if [[ -n "$3" ]]; then
+    date=$3;
+fi;
+
 echo -e "---\nlayout: post\ndate: $date\ncategory: $2\n---" > $2/_posts/$date-$1.md
