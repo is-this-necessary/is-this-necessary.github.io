@@ -5,7 +5,7 @@ date: 2019-07-18
 category: bad-romance
 tags: mad-men
 ---
-Don Draper. What class. Or is he? Permanent drunkard, liar, constantly cheating on his wives. Hmm, if only I was married, this would sound very true for me as well. It's not gonna be the first time if I mention my very much liked ability to identify myself with the story characters. It's Don's turn now.
+Don Draper. What class. Or is he? Permanent drunkard, liar, constantly cheating on his wives. Hmm, if only I was married, this would sound very true for me as well. It's not gonna be the first time if I mention my very much liked ability to [identify myself]({% post_url /uncategorized/2019-04-24-identifying-with-your-hero %}) with the story characters. It's Don's turn now.
 
 
 A Suit. Finally.
