@@ -25,7 +25,7 @@ There is a couple of things I wanted to get done (apart from the kitchen). Terra
 About a Girl
 ============
 
-A. once said that you'd eventually miss the warmth of other body, occasional hugs and kisses; that it's hard to go by just by yourself. I'm sort of willing to agree with this. Sadly, I'm getting those feelings from time to time. And there's no one that could satiate them. This _11_ tattoo is supposed to mean---amongst other things---&nbsp;_Forever Alone_.
+B. once said that you'd eventually miss the warmth of other body, occasional hugs and kisses; that it's hard to go by just by yourself. I'm sort of willing to agree with this. Sadly, I'm getting those feelings from time to time. And there's no one that could satiate them. This _11_ tattoo is supposed to mean---amongst other things---&nbsp;_Forever Alone_.
 
 It must be _Californication_ that got me thinking about it again. I mean, about a relationship with a woman. It is my pet-peeve to think I'm special in the same way the characters from my favourite shows are. So obviously I was getting this message in my head, that me, like Hank Moody, just cannot keep it simple; that I must create mess around me when it comes to being with others. My avoiding nature wants to keep myself from making any mistakes and from making anyone's life miserable. But what if I applied my stoic stance and say that it's not entirely my responsibility how others feel? Do I want to try again? Maybe. Do I want to get serious? Hell, no! Hank-Karen-like relationship? That's acceptable, I guess.
 

@@ -7,7 +7,7 @@ tags: paul-desmond coffee
 ---
 Fuck, I'm there again. Lately I haven't been sleeping well; maybe this is the reason for this stupid feeling? I'm disgusted by IT, I want to vomit when I see code. When I think of all the imperfections, I become blocked and cannot create nor even do small fixes. My mind is elsewhere. Perhaps, since yesterday, in this very moment when I'm finalizing my currently most vivid wish---getting an electronic piano.
 
-Just like in A., when I was figuring out how to redecorate my new apartment, I only think now about how to build a stand, where exactly I should place this piano; whether or not it will fit under my desk. Will I use it? Will I enjoy it? Will this enable me musically and broaden my comprehension? All this while singing Paul Desmond's beautiful melodies in my head.
+Just like in K., when I was figuring out how to redecorate my new apartment, I only think now about how to build a stand, where exactly I should place this piano; whether or not it will fit under my desk. Will I use it? Will I enjoy it? Will this enable me musically and broaden my comprehension? All this while singing Paul Desmond's beautiful melodies in my head.
 
 I want to do some proper music transcription. The piano will help with that, for sure. I just need to make sure I have the time and energy for this. And tenacity, most importantly. Perhaps I should resign from one (or both) of the tournaments. It's such a nice feeling to know that they come to an end very soon. And there will probably be a summer break. I will get to remember the feeling what it's like without them. Unless they start at Pik. But those are different anyway. I'll be drinking & playing there, casual stuff.
 
