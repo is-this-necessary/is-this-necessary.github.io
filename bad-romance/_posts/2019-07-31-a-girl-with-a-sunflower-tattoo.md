@@ -13,11 +13,11 @@ She saved me actually. She had some water in her bag which I eagerly drank. It w
 Take Me to Church
 =================
 
-Who could have imagined, that I'd be sitting on a bench by the church with a girl that so much reminded me of Jennifer Lawrence. I told her she looked like an actress, but I don't think I mentioned which one. Would she like that kind of complement? Some people don't consider it positive. No wonder really, everyone wants to be unique in some way.
+Who could have imagined, that I'd be sitting on a bench by the church with a girl that so much reminded me of Jennifer Lawrence. I told her she looked like an actress, but I don't think I mentioned which one. Would she like that kind of compliment? Some people don't consider it positive. No wonder really, everyone wants to be unique in some way.
 
 Stupid me, I was so drunk, that I can't even remember her face. At one moment she smiled at me, with her hair wet from the rain, and that stuck in my mind. But I actually see Jennifer in this memory. Heck, I'm not sure whether she had black hair, what color clothes she wore. I do remember however her chubby fingers (just like Mrs. Lawrence once described hers) from the moment I took her hand and gave a prolonged kiss. It was a goodbye kiss, but before that happened, we touched each other quite a lot as for total strangers.
 
-One other physical contact I remember vividly was when I held her hand and put my other finger on her tattoo. She didn't mind that at all. She was so calm. I even complemented on her courage when I shared my regrets that all the other women are afraid of me in the darkness of the night. Maybe she wasn't because I was barely standing and not being able to see clearly...
+One other physical contact I remember vividly was when I held her hand and put my other finger on her tattoo. She didn't mind that at all. She was so calm. I even complimented on her courage when I shared my regrets that all the other women are afraid of me in the darkness of the night. Maybe she wasn't because I was barely standing and not being able to see clearly...
 
 We got wet, but not soaking. The rain was so pleasant. She looked gorgeous from what I remember. I once wanted to uncover her face from those wet hair. Maybe I even moved my hand close to it, but probably it would be too much. If I did it, I would for sure kissed her afterwards. She took me to the church's ground to cover from rain. We sat next to each other, very close, talked like we were old time friends. Or lovers even.
 

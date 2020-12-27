@@ -25,7 +25,7 @@ Gosh, she magnetised me in that tram before. When I was heading to the mall, I l
 
 The top fragments of her bra were visible through that small blouse. It had red elements. She got black hair. Very nice hair indeed, thick. Long lashes, I wonder if they were fake. But they looked rather nice. And she had that small mole near the lips. Definitely charming. I had to keep myself from staring in her cleavage, or at her face, but at the same time I wished for any physical contact. Not that difficult at rush hour in a crowded tram. One thing I was rather comfortable at watching were her feet. A nice pair of smallish, but chubby fingered feet. And those ballerina shoes tied high on the calf. I wish she wasn't wearing long jeans; those ties always look awesome on bare legs.
 
-There was an aura of inaccessibility around her. Along with not that good looking sticked nails I noticed some rings on her middle finger. I can rarely guess if they are engagement, wedding or neither. Those looked like they could be any of the above. Fuck that. I wasn't going to start a conversation anyway. Hell, I can't even complement a woman on her looks! That's why I'm thinking of a way to do it other than by saying.
+There was an aura of inaccessibility around her. Along with not that good looking sticked nails I noticed some rings on her middle finger. I can rarely guess if they are engagement, wedding or neither. Those looked like they could be any of the above. Fuck that. I wasn't going to start a conversation anyway. Hell, I can't even compliment a woman on her looks! That's why I'm thinking of a way to do it other than by saying.
 
 
 Business Card (Not)
